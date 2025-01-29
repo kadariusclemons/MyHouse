@@ -10,5 +10,7 @@ Statues in the next room, billions in escrow, bulletproof the whole thang, ignor
 
 • Gold links, raw denim.
 
+Blog link (https://github.com/kadariusclemons/MyHouse.git)
+
 
 Approved by Joshua Moore
