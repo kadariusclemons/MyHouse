@@ -9,3 +9,6 @@ Statues in the next room, billions in escrow, bulletproof the whole thang, ignor
 • :seedling: I’m currently learning to find a source to charge my inner being
 
 • Gold links, raw denim.
+
+
+Approved by Joshua Moore
