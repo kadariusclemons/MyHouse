@@ -1,6 +1,6 @@
 Welcome to my House
 
-I am the Creator!
+I am the Creator
 
 Statues in the next room, billions in escrow, bulletproof the whole thang, ignore the dresscode.
 
